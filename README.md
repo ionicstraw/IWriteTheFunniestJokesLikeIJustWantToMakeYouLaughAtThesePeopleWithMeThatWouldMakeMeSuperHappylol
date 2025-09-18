@@ -6,4 +6,7 @@ he wanted to be a c*ck blocker with a hamster sized d*ck, a sad an attempt was m
 
 all these people in jason's apparently, "renowned" with quotes, lab have had serious professional and professional failings where they cant leave his orbit, he keeps hiring them bc no one else would hire them, and i go in to every single person about how mediocre they all really are 😂 -- idc it needs to be said out loud, gotta say the quiet part out loud, that its just trailer trash
 
+Why cant these people ever make it to an institution that is higher ranking than Penn — is it like hard or something? deathly difficult? I made it, I mean Sampled was second to the Broad Institute to the microarray data it received yearly, and i wrote production level scripts around that data and then my being at M S K, that speaks for itself. They cannot get out of his orbit bc they dont have the skills.
+
+
 ~why this all this happen to me?~ no, it happened to ME bc im the best person to unravel this entire mess by these sloppy, sloppy people
