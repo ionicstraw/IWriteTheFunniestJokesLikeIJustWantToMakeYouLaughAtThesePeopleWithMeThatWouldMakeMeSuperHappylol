@@ -8,6 +8,6 @@ all these people in jason's apparently, "renowned" with quotes, lab have had ser
 
 Why cant these people ever make it to an institution that is higher ranking than Penn — is it like hard or something? deathly difficult? I made it, I mean Sampled was second to the Broad Institute to the microarray data it received yearly, and i wrote production level scripts around that data and then my being at M S K, that speaks for itself. They cannot get out of his orbit bc they dont have the skills.
 
-the orbit is around shit, its not like a giant star or even a dying star, its just an orbit of many people around absolute shit with average intelligence 😂
+the orbit is around shit, its not like a giant star or even a dying star, its just an orbit of many people around absolute shit with average intelligence thats hurling through space, too bad not into an actual black hole 😂
 
 ~why this all this happen to me?~ no, it happened to ME bc im the best person to unravel this entire mess by these sloppy, sloppy people
